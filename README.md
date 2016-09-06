@@ -1,2 +1,2 @@
 # unskewd.github.io
-We are right with you
+We agree with you
